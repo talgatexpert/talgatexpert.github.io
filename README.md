@@ -1,2 +1,2 @@
-# Cameron Class Resume 
+# Talgat resume
 
